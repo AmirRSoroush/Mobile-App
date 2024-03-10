@@ -4,4 +4,4 @@
 Download the <b> <i> SOROUSH </i> </b> App today to enjoy more!
 <br>
 Please visit on:
-<i><strong><a href="https://sites.google.com/view/amirsoroush">https://sites.google.com/view/amirsoroush</a></strong></i>
+<a href="https://sites.google.com/view/amirsoroush"><i><strong>https://sites.google.com/view/amirsoroush</strong></i></a>
